@@ -8,3 +8,9 @@
 - ### VOCÊ PODE ENTRAR EM CONTATO COMIGO 📫
 
 - gabriel.assis12@escola.pr.gov.br
+
+
+
+
+![](https://media.tenor.com/Z6Gqy-qS-EQAAAAS/kakashi-naruto.gif)
+
